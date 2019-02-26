@@ -40,3 +40,4 @@ Beat Statler and Waldorf 2v2 for a chance to win dinner and drinks at Moon Under
 
 
 ## [Semaphore Solutions](https://semaphoresolutions.com/)
+Beat our bounty snake to be entered into a draw to win one of our fabulous prizes! (Boardgames, snake stuffies)
